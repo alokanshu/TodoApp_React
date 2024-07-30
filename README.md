@@ -74,8 +74,9 @@ Here are some of the snaps of the project
 
 ![image](https://github.com/user-attachments/assets/3b67a012-c172-4f96-9b0f-a5d8305008b5)  
 
-<br>
-![image](https://github.com/user-attachments/assets/0de78abe-651c-47b3-8a97-c8843c4b35ef) 
+<br> 
+![image](https://github.com/user-attachments/assets/42756ecf-ec51-4b96-9432-a53914a20242)
+
 <br>
 ![image](https://github.com/user-attachments/assets/b9c33e3e-a70e-49f9-92f3-28bba776e638)
 
